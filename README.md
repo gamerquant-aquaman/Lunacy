@@ -215,4 +215,4 @@ Lunacy is the **full free version** with all features and updates included. Ther
 Unlock your creative potential today with **Lunacy** — your reliable partner in design! Download now!
 
 ---
-**Last updated:** 2026-09-15 22:43:41 UTC
+**Last updated:** 2026-09-16 00:59:31 UTC
